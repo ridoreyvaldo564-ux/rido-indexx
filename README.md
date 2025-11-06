@@ -1,0 +1,2 @@
+# rido-indexx
+anti barka
